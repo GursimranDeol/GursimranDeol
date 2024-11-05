@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GursimranDeol
-- 👀 I’m interested in punk rock fashion.
+- 👀 I’m interested in everything.
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on any begginer level projects
 - 📫 How to reach me: gursimrandeol96@gmail.com
